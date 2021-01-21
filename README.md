@@ -1,1 +1,1 @@
-[WORLD CURRENCY](https://yoursamlan.github.io/Static_GK/WORLD_CURRENCY.html)  <br />  
+[WORLD CURRENCY](https://yoursamlan.github.io/Static_GK/WORLD_CURRENCY.html)  <br />  [WORLD CURRENCY[S]](https://yoursamlan.github.io/Static_GK/WORLD_CURRENCY[S].html)  <br />  
